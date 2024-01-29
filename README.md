@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AshMoon180
 - 👀 I’m interested in furries, drawing, and video games.
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning how to code in my game development class at high school.
 - 💞️ I’m looking to collaborate on anything easy.
 - 📫 How to reach me is at Facebook @Ash Moon
 - 😄 Pronouns: she/her
